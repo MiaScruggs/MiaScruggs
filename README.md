@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MiaScruggs
 - 👀 I’m interested in money🍔🧘🏾‍♀️✈️🛳️💵
 - 🌱 I’m currently learning CyberSecurity
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on any and everthing
 - 📫 How to reach me miascruggs@gmail.com
 
 <!---
